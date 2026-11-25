@@ -3,6 +3,8 @@
 [![Hits](https://hits.sh/github.com/pvrpss.svg?style=plastic&label=apples&color=a84336&labelColor=cdc8ba)](https://hits.sh/github.com/pvrpss/)
 
   <img align="left" width="300" src="https://files.catbox.moe/y739u4.png" style="margin-right: 160px;" />
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Mountains+of+Christmas&size=25&color=F3C0A0&width=435&lines=%22+and+I+have+to+say;I'm+glad+it+wasn't+me;who+had+to+walk+away+%22)](https://git.io/typing-svg)
    
 <a>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31p5dwpplbl7uiaubemm62qfjpki&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ababab&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)</a>
 
