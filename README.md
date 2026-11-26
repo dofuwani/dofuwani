@@ -7,12 +7,12 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Mountains+of+Christmas&size=25&duration=5500&color=F3C0A0&width=435&lines=%22+and+I+have+to+say;I'm+glad+it+wasn't+me;who+had+to+walk+away+%22)](https://git.io/typing-svg)
 
 <details closed>
-   <summary>ㅤ ㅤ⋆˚𖤓˖°ㅤɩᥒƒo
+   <summary>ㅤ ㅤ⋆˚𖤓˖°ㅤмσυяη, ƒєм ρяηѕ
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Mountains+of+Christmas&size=30&duration=1&pause=20000&color=ABB38F&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E2%8F%9D%E2%8F%9D%E2%8F%9D)](https://git.io/typing-svg)
 
 <details closed>
-   <summary>ㅤ ㅤ⋆˚𖤓˖°ㅤρoᥒყtoωᥒ
+   <summary>ㅤ ㅤ⋆˚𖤓˖°ㅤc+н ƒяєєℓу
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Mountains+of+Christmas&size=30&duration=1&pause=20000&color=D78F7AFF&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E2%8F%9D%E2%8F%9D%E2%8F%9D)](https://git.io/typing-svg)
 
