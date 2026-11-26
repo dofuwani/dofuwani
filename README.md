@@ -15,6 +15,8 @@
    <summary>ㅤ ㅤ⋆˚𖤓˖°ㅤρoᥒყtoωᥒ
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Mountains+of+Christmas&size=30&duration=1&pause=20000&color=D78F7AFF&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E2%8F%9D%E2%8F%9D%E2%8F%9D)](https://git.io/typing-svg)
+
+[van](https://github.com/nervousrescue) . [fang](https://github.com/viciousfangs) . [bell](https://github.com/ImLiterallyBell) . [vil](https://github.com/vilzkz)
    
 <a>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31p5dwpplbl7uiaubemm62qfjpki&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ababab&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)</a>
 
